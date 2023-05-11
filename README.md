@@ -5,3 +5,4 @@
 - [Understanding and Managing Anger: Strategies and Tips from Experts](https://jyotirgamya.org/article/understanding-managing-anger/)
 - [Tale of a Dog's Tail](https://jyotirgamya.org/article/tale-dogs-tail/)
 - [How To Control Anger Immediately](https://jyotirgamya.org/opinion/quitting-only-option/)
+- [How To Control Anger Outbursts](https://jyotirgamya.org/opinion/anger-management-challenge/)
